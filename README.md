@@ -1,6 +1,6 @@
 # howtohackgames
 
-Hello. Although I speak English here, I will only speak German privately if it is at all possible.
+Hello.
 
 I show here cheats, hacks, bugs etc to make your gaming experience "better" (?).
 
